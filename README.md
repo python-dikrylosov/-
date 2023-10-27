@@ -49,3 +49,5 @@
 # ЖЕЛАЕМ УДАЧИ!
 
 P.S. Не забудьте посетить экспертные сессии и не стесняйтесь задавать вопросы)
+
+https://drive.google.com/drive/folders/1Mhg8RoMvue9qhTG_xhT6nYzN8X87ftaG?usp=drive_link
